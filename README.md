@@ -9,7 +9,7 @@ As this was a group project, we were team of 4 members-
 
 1-Niteesh Singh (Me)
 
-2-Bhawana Mahur
+2-Bhawna Mahur
 
 3-Aditya Sugriv Kendre
 
